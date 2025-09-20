@@ -7,4 +7,4 @@ These are some things I like to do:
 * Eat
 * Play tennis
 
-![One of my favorite portraits I've taken](https://www.flickr.com/photos/126659742@N04/50583211623/in/album-72157716815961896)
+![One of my recent illustrations](https://www.cvt.org/wp-content/uploads/Wellness-CVT-H.jpg)
