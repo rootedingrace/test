@@ -12,4 +12,4 @@ One of my recent illustrations:
 ![One of my recent illustrations](https://www.cvt.org/wp-content/uploads/Wellness-CVT-H.jpg)
 
 
-Check out more here: (https://graceogihara.carbonmade.com/)
+Check out more here: https://graceogihara.carbonmade.com/
