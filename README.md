@@ -1,4 +1,4 @@
-# test
+# Welcome!
 ## About me
 Hi, my name is Grace, and I've been working as a graphic designer for 10+ years, a mixture  of freelancing and in-house for nonprofits. Looking for my next full-time position, and hoping to brush up on soft skills as part of the process. Interested in learning more about UI/UX design/programming, as I'm more of a layout designer and illustrator. 
 
