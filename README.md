@@ -5,6 +5,7 @@ Hi, my name is Grace, and I've been working as a graphic designer for 10+ years,
 In my free time, I enjoy playing tennis, hiking, cooking, reading, and photography.
   
 **Software & Tools**
+
 Adobe Creative Suite (Photoshop, Illustrator, InDesign, After Effects, Premiere Rush, Lightroom) · Canva · Figma · WordPress · Hootsuite · Google Workspace · Meta · LinkedIn · YouTube · X · MailChimp · Asana · Microsoft 365
 
 **One of my recent illustrations:** 
@@ -13,4 +14,5 @@ Adobe Creative Suite (Photoshop, Illustrator, InDesign, After Effects, Premiere 
 
 
 Check out more here: https://graceogihara.carbonmade.com/
+
 LinkedIn: https://www.linkedin.com/in/graceogihara/
